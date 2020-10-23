@@ -1,3 +1,3 @@
-# Welcome to my travel blog
+# Welcome to my car travel blog
 
 I'm glad you are here. I plan to talk about a road trip  ...
